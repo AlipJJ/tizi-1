@@ -6,6 +6,9 @@
 
 知乎推荐 电脑稳定好用的梯子,电脑梯子推荐，pc梯子软件推荐，知乎推荐的梯子,好用的pc梯子软件，稳定的电脑梯子推荐,梯子TOP推荐 PC/Mac/iPhone好用梯子 推荐翻墙梯子软件 科学上网梯子工具 海外加速器梯子
 
+
+![飞机云机场.jpg](https://s2.loli.net/2024/02/23/plBxnmfL7FY5orv.jpg)
+
 ## FJCloud 手机电脑梯子
 
 [**点击直达官网**](https://go.51tz.cc/fjcloud)
@@ -49,18 +52,4 @@
 <h2><strong><a href="https://go.51tz.cc/nicecloud"><font color="red"> 點擊直達2號梯官網(12元/月)</font></a></strong></h2>
 
 
-<p><b><span style="color: red;">老牌机场梯子推荐（支持试用）</span></b></p>
 
-<a href="https://go.51tz.cc/cmynet">CMY 机场（运行6年+）</a>
-
-<a href="https://go.51tz.cc/bitnet">Bitz 机场（运行6年+）</a>
-
-<a href="https://go.51tz.cc/xgclou">xgCl 机场（运行5年+）</a>
-
-<a href="https://go.51tz.cc/nicecloud">Nicecl 机场（运行2年）</a>
-
-<a href="https://go.51tz.cc/fjcloud">FJC 机场VIP (运行2年）</a>
-
-<a href="https://go.51tz.cc/glados">GLa 机场（运行6年+）</a>
-
-<a href="https://go.51tz.cc/dove">DOV 机场（运行2年+）</a>

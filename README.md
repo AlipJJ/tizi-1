@@ -33,7 +33,7 @@
 
 ### 一、性价比
 
-这家的话基础套餐特别划算性价比超高,只要**￥9.9/月**，我自己用了2年多，后来用量大换成无限流量套餐了。
+这家的话基础套餐特别划算性价比超高,只要**￥11元/月**，我自己用了2年多，后来用量大换成无限流量套餐了。
 
 ### 二、稳定，隐蔽，安全
 
@@ -47,7 +47,7 @@
 
 
 
-<h2><strong><a href="https://go.51tz.cc/fjcloud"><font color="blue">點擊直達1號梯官網(9.9元/月)</font></a></strong></h2>
+<h2><strong><a href="https://go.51tz.cc/fjcloud"><font color="blue">點擊直達1號梯官網(11元/月)</font></a></strong></h2>
 
 <h2><strong><a href="https://go.51tz.cc/nicecloud"><font color="red"> 點擊直達2號梯官網(12元/月)</font></a></strong></h2>
 

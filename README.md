@@ -58,9 +58,3 @@
 
 
 
-<h2><strong><a href="https://go.51tz.cc/fjcloud"><font color="blue">點擊直達1號梯官網(11元/月)</font></a></strong></h2>
-
-<h2><strong><a href="https://go.51tz.cc/nicecloud"><font color="red"> 點擊直達2號梯官網(12元/月)</font></a></strong></h2>
-
-
-

@@ -6,7 +6,7 @@
 
 电脑稳定好用的梯子,电脑梯子推荐，pc梯子软件推荐，知乎推荐的梯子,好用的pc梯子软件，稳定的电脑梯子推荐,梯子TOP推荐 PC/Mac/iPhone好用梯子 推荐翻墙梯子软件 科学上网梯子工具 海外加速器梯子
 
-![尔湾云机场](https://github.com/user-attachments/assets/9b87c3af-50fd-4e5e-bc78-c0d185d9c7f4)
+![尔湾云机场](https://www.cnvintage.org/assets/files/2025-02-25/1740482896-532738-31634639-7d38-4d08-b3c2-883b1a03761f.jpeg)
 
 
 
